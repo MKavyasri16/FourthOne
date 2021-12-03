@@ -10,3 +10,5 @@ S.No|Name
 👻
 
 ![Nani](https://www.filmibeat.com/ph-big/2017/02/ninnu-kori_148791272200.jpg)
+
+![Sofia](https://m.media-amazon.com/images/I/714AbOPdj6L._SL1375_.jpg)
